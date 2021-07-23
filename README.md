@@ -1,1 +1,1 @@
-# https://vadyanator.github.io/auto-project/
+# https://vsuslov29.github.io/auto-project/
